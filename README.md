@@ -1,3 +1,5 @@
+Please add me as a Agent Developer [Published] on Discord, my username is xkakTyZx#8562
+
 # High Gas Agent
 
 ## Description
